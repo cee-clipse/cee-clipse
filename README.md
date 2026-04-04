@@ -1,7 +1,8 @@
 ## British - Yes I drink tea (: WITH MILK! :O
 Gothic-Emo-Grunge
  - Patreon for more info :p 
-<!--
+<!--<img width="640" height="213" alt="image" src="https://github.com/user-attachments/assets/5c78bcbe-f54c-4848-99d0-20e63a2f19f4" />
+
 **cee-clipse/cee-clipse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
