@@ -1,6 +1,6 @@
 ## British - Yes I drink tea (: WITH MILK! :O
 Gothic-Emo-Grunge
- - Patreon for more info :p
+ 
  - <img width="640" height="213" alt="image" src="https://github.com/user-attachments/assets/afa99e8c-9e19-4c29-ab82-c69d94f77672" />
 
 <!--<img width="640" height="213" alt="image" src="https://github.com/user-attachments/assets/5c78bcbe-f54c-4848-99d0-20e63a2f19f4" />
